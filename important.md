@@ -1,0 +1,1 @@
+It is important that I fully understand the work so I can become a developer that is professional to such an extent that even if I get tested by recruiters in future, I am able to solve problems presented to me. This not only applies to coding but as a basic rule to go about life
